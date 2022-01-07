@@ -1,0 +1,5 @@
+- 👋 hol yo soy @RubenDarioLozanoGomez
+- 👀 yo estoy interesando en aprender y enseñarte
+- 🌱 yo estoy aprendiendo sobre periodismo y comunicacion social.
+- 💞️ yo estoy colaborando con comunidades que quieran hacer que su voz se escuche
+- 📫 Si requieren ayuda me pueden encontrar por twitter
